@@ -23,6 +23,3 @@ Come home to the Father through Jesus Christ and receive forgiveness and new lif
 
 👉 Read the full article:
 https://bibleprophecyinaction.blogspot.com/2023/06/the-parable-of-fathers-heart.html
-
-👉 Read the Holy Bible (KJV) online:
-https://www.kingjamesbibleonline.org
